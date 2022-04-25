@@ -1,0 +1,2 @@
+# Exercico-Bhaskara
+Atividade
